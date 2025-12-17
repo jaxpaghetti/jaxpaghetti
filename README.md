@@ -11,6 +11,7 @@
 - i will block you if you sit/stand on top of me too long its not a touch trigger or anythin just annoys me 🥀
 - pls ask to take inspo from my ponies...i likely wont mind it but it kinda freaks me out when someones a 99.9% replica of something i made unprompted if that makes sense lol
 - probs doesnt matter now that i have a diff user but there was someone trying to impersonate me in the genshit area i was furretkechi for yrs just an fyi incase they try to frame me again or some shit help
+- [guestbook]([https://pages.github.com/](https://furretkechi.123guestbook.com)) is dead as hell but im keeping it up cuz someone got mad at me and its so funny 
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
