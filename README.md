@@ -8,6 +8,9 @@
 - my discord is still furretkechi let me know if you're sending me a request cuz i dont accept reqs from people if i cant tell who it is yknow
 - im socially awkward so if i come off as rude and avoiding you my bad broseph
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
+- i will block you if you sit/stand on top of me too long its not a touch trigger or anythin just annoys me 🥀
+- pls ask to take inspo from my ponies...i likely wont mind it but it kinda freaks me out when someones a 99.9% replica of something i made unprompted if that makes sense lol
+- probs doesnt matter now that i have a diff user but there was someone trying to impersonate me in the genshit area i was furretkechi for yrs just an fyi incase they try to frame me again or some shit help
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
