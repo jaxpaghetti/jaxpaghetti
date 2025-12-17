@@ -1,7 +1,8 @@
-## Hi there 👋
+![](images/ab.jpg)
+</br>
+##PLEASE do not ask me for supporter perks. i am at my limit.</br>
 
 <!--
-**jaxpagetti/jaxpagetti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
