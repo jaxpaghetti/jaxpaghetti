@@ -2,7 +2,7 @@
 <br></br>
 ## PLEASE do not ask me for supporter perks i am at my limit and i will eat your first born</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other shit so this is my new account since i dont got access to it anymore :(</br>
-- im always at spawn if u need me
+- im a spawn dweller
 - whisper me if i dont answer im offtab a lot + i may take a long time to respond..esp cuz i accidentally fall asleep with ponytown open a lot
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
 - my discord is still furretkechi let me know if you're sending me a request cuz i dont accept reqs from people if i cant tell who it is yknow
