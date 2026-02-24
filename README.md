@@ -5,14 +5,12 @@
 - im a spawn dweller
 - whisper me if i dont answer im offtab a lot + i may take a long time to respond..esp cuz i accidentally fall asleep with ponytown open a lot
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
-- my discord is still furretkechi lmk if youre sending me a request cuz i dont accept reqs from people if i cant tell who it is yknow
 - im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
-- i will block you if you sit/stand on top of me too long its not a touch trigger or anythin just annoys tf outta me i wanna see my pony 🥀
+- i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys tf outta me i wanna see my pony 🥀
 - pls ask to take inspo from my ponies...i likely wont mind it but it kinda freaks me out when someones a 99.9% replica of something i made unprompted if that makes sense lol
-- probs doesnt matter now that i have a diff user but there was someone trying to impersonate me in the genshit area i was furretkechi for yrs just an fyi incase they try to frame me again or some shit help
-- [guestbook](https://furretkechi.123guestbook.com) is dead as hell but im keeping it up cuz someone got mad at me and its so funny
-- i like to play n draw
+- ive gotten asked a few times so if ur wondering what media my newer strawpage is its saihate station :3 
+- [guestbook](https://furretkechi.123guestbook.com) is dead as hell but theres funny msg
 - dont roleplay with me pls i dont roleplay its scawy for me sorry
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
