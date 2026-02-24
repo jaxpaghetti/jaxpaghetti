@@ -10,7 +10,7 @@
 - i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys tf outta me i wanna see my pony 🥀
 - pls ask to take inspo from my ponies...i likely wont mind it but it kinda freaks me out when someones a 99.9% replica of something i made unprompted if that makes sense lol
 - ive gotten asked a few times so if ur wondering what media my newer strawpage is its saihate station :3 
-- [guestbook](https://furretkechi.123guestbook.com) is dead as hell but theres funny msg
+- [guestbook](https://furretkechi.123guestbook.com) is dead as hell but i got a hate msg that sounds like a disney villain so im keeping it up
 - dont roleplay with me pls i dont roleplay its scawy for me sorry
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
