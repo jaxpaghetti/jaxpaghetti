@@ -1,17 +1,16 @@
 ![](https://github.com/user-attachments/assets/068f0e5f-85b3-49f3-b374-5db313048e77)
 <br></br>
 ## PLEASE do not ask me for supporter perks!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
-### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other shit so this is my new account since i dont got access to it anymore :(</br>
+### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont got access to it anymore :(</br>
 - im a spawn dweller
 - whisper me if i dont answer im offtab a lot + i may take a long time to respond..esp cuz i accidentally fall asleep with ponytown open a lot
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
 - im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
-- i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys tf outta me i wanna see my pony 🥀
+- i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys me i wanna see my pony 🥀
 - pls ask to take inspo from my ponies...i likely wont mind it but it kinda freaks me out when someones a 99.9% replica of something i made unprompted if that makes sense lol
-- ive gotten asked a few times so if ur wondering what media my newer strawpage is its saihate station :3 
 - [guestbook](https://furretkechi.123guestbook.com) is dead as hell but i got a hate msg that sounds like a disney villain so im keeping it up
-- dont roleplay with me pls i dont roleplay its scawy for me sorry
+- dont roleplay with me pls i will likely ignore u esp cuz most the time its butting into my conversation
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
