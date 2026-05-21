@@ -3,7 +3,7 @@
 # <ins>PLEASE READ ME!!</ins> because of people attempting to spoil tadc in public chat ive decided to turn off public msges entirely :/ i wont see anyones messages that arent in my friends list and i wont be checking strawpage until i watch it on june 4th so dont even try it lmao ill also be disabling friend requests cuz i dont trust anyone to see this and try to sneak in and spoil it lmao
 ## PLEASE do not ask me for supporter perks!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont got access to it anymore :(</br>
-- im a spawn dweller
+- im a spawn dweller if u think im someone else it probably isnt me cuz im at spawn 99.5% of the time
 - whisper me if i dont answer im offtab a lot + i may take a long time to respond..esp cuz i accidentally fall asleep with ponytown open a lot
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
 - im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl
