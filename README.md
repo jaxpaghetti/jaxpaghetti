@@ -8,7 +8,7 @@
 - whisper me if i dont answer im offtab a lot + i may take a long time to respond
 - i accidentally fall asleep with ponytown open a lot
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
-- im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl
+- im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl esp if im not in a talking mood
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
 - i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys me i wanna see my pony 🥀
 - pls ask to take inspo from my ponies ive gotten framed for things from someone impersonating me so id rather you ask me
