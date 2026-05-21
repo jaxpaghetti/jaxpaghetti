@@ -9,10 +9,10 @@
 - im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
 - i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys me i wanna see my pony 🥀
-- pls ask to take inspo from my ponies...i likely wont mind it but it kinda freaks me out when someones a 99.9% replica of something i made unprompted if that makes sense lol
-- [guestbook](https://furretkechi.123guestbook.com) is dead as hell but i got a hate msg that sounds like a disney villain so im keeping it up
-- dont roleplay with me pls i will likely ignore u esp cuz most the time its butting into my conversation
-- im not bothered by heavy triggering topics but if ive talked to u for like 5 minutes im not going to respond to it i dont know u like that
+- pls ask to take inspo from my ponies ive gotten framed for things from someone impersonating me so id rather you ask me
+- [guestbook](https://furretkechi.123guestbook.com) is dead but the hate msg on it is funny so im keeping it on my github
+- dont roleplay in a serious manner with me pls i will likely ignore u because its not my thing lol if i do im joking around
+- heavy and triggering topics r fine but if ive talked to u for like 5 minutes im not partaking in the conversation i dont know u like that
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
