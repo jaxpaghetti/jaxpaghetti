@@ -4,7 +4,7 @@
 ## PLEASE do not ask me for supporter perks!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont got access to it anymore :(</br>
 - im a spawn dweller if u think im someone else it probably isnt me cuz im at spawn 99.5% of the time
-- i like funnybunny and shuake so if both irk you then hide me im not arguing with u its not my problem
+- i like funnybunny and shuake so if either irk you then hide me im not arguing with u its not my problem
 - whisper me if i dont answer im offtab a lot + i may take a long time to respond..esp cuz i accidentally fall asleep with ponytown open a lot
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
 - im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl
