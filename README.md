@@ -1,5 +1,6 @@
 ![](https://github.com/user-attachments/assets/068f0e5f-85b3-49f3-b374-5db313048e77)
 <br></br>
+# <ins?>PLEASE READ ME!!</ins> because of people attempting to spoil tadc in public chat ive decided to turn off public msges entirely :/ i wont see anyones messages that arent in my friends list and i wont be checking strawpage until i watch it on june 4th so dont even try it. ill also be disabling friend requests cuz i dont trust anyone to see this and try to sneak in and spoil it lmao
 ## PLEASE do not ask me for supporter perks!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont got access to it anymore :(</br>
 - im a spawn dweller
