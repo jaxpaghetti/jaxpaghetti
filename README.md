@@ -1,6 +1,6 @@
 ![](https://github.com/user-attachments/assets/068f0e5f-85b3-49f3-b374-5db313048e77)
 <br></br>
-# <ins>PLEASE READ ME!!</ins> cuz of people tryna spoil tadc leaks in public chat ive decided to turn off public msges entirely :/ i can only see party chat n friends whispers until i watch it on june 4th so dont even try it lmao im also disabling friend requests cuz i dont trust anyone to see this and try to sneak in and spoil it lmao
+# <ins>PLEASE READ ME!!</ins> cuz of people tryna spoil tadc leaks in public chat ive decided to turn off public msges entirely :/ i can only see party chat n friends whispers and im not looking at strawpage gimmicks until i watch it on june 4th so dont even try it ur wasting ur time lmao im also disabling friend requests cuz i dont trust anyone to see this and try to sneak in and spoil it lmao
 ## PLEASE do not ask me for supporter perks!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont have access to it anymore :(</br>
 - im a spawn dweller if u think im someone else it likely isnt me cuz im at spawn 99.5% of the time
