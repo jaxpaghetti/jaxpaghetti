@@ -8,7 +8,7 @@
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
 - whisper me if i dont answer im offtab a lot + i likely will take a long time to respond lol i accidentally fall asleep with ponytown open a lot so sometimes i dont answer at all unintentionally
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
-- im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl esp if im not in a talking mood
+- im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl and can take awhile to warm up to ppl
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
 - i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys me i wanna see my pony 🥀
 - pls ask to take inspo from my ponies ive gotten framed for things from someone impersonating me so id rather you ask me
