@@ -6,15 +6,16 @@
 - im a spawn dweller if u think im someone else it likely isnt me cuz im at spawn 99.5% of the time
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
-- whisper me if i dont answer im offtab a lot + i likely will take a long time to respond lol i accidentally fall asleep with ponytown open a lot so sometimes i dont answer at all unintentionally
-- please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
+- whisper me if i dont answer im offtab a lot + i likely will take a long time to respond
+- please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy and some things dont
 - im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl and can take awhile to warm up
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
 - i will block you if you sit/stand on top of me too long its not a touch trigger or anything just annoys me i wanna see my pony 🥀
 - pls ask to take inspo from my ponies ive gotten framed for things from someone impersonating me so id rather you ask me
 - [guestbook](https://furretkechi.123guestbook.com) is dead but the hate msg on it is funny so im keeping it on my github
-- dont roleplay in a serious manner with me pls i will likely ignore u because its not my thing lol if i do im joking around
-- heavy and triggering topics r fine but if ive talked to u for like 5 minutes im not partaking in the conversation i dunno u like that
+- dont roleplay in a serious manner with me pls i will likely ignore u i dont like rping
+- heavy and triggering topics dont bother me but dont do it if ive known u for like 5 mins
+- im blocking/ignoring ppl who try to debate and get a rise out of me over the tadc finale i dont care about you or ur opinion on it u have the entirety of tiktok to whine about it
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
