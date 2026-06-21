@@ -1,6 +1,5 @@
 ![](https://github.com/user-attachments/assets/068f0e5f-85b3-49f3-b374-5db313048e77)
 <br></br>
-# my strawpage is safe for anyone not wanting tadc ep 9 spoilers!! ill only talk about spoilers on pt thru whisper tho, i have friends who havent seen it yet
 ## PLEASE do not ask me for supporter perks!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont have access to it anymore :(</br>
 - im a spawn dweller if u think im someone else it likely isnt me cuz im at spawn 99.5% of the time
