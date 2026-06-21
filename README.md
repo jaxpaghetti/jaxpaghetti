@@ -2,7 +2,7 @@
 <br></br>
 ## PLEASE do not ask me for supporter perks!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont have access to it anymore :(</br>
-- im a spawn dweller if u think im someone else it likely isnt me cuz im at spawn 99.5% of the time
+- im at spawn 99.5% of the time
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
 - whisper me if i dont answer im offtab a lot + i likely will take a long time to respond
