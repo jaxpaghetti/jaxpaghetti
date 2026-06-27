@@ -5,7 +5,7 @@
 - im at spawn 99.5% of the time
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
-- i also flip between pronouns for jax if u dont like or dont tolerate she/her jax dont interact with me whatsoever because she canonically at the very least does use she/her pronouns. jax IS trans thats not up to interpretation and it cant be considered a [headcanon](https://www.merriam-webster.com/wordplay/words-were-watching-headcanon-fanon) when it was literally [confirmed](https://bsky.app/profile/gooseworx.bsky.social/post/3moprcfwqfs2a). that is her intended reading whether u like how its written or not.
+- i also flip between pronouns for jax if u dont like or dont tolerate she/her jax dont interact with me whatsoever because she canonically at the very least does use she/her pronouns. jax IS trans thats not up to interpretation and it cant be considered a [headcanon](https://www.merriam-webster.com/wordplay/words-were-watching-headcanon-fanon) when it was literally [confirmed](https://bsky.app/profile/gooseworx.bsky.social/post/3moprcfwqfs2a). that is her intended reading whether u like how its written or not and im not debating it.
 - whisper me if i dont answer im offtab a lot + i likely will take a long time to respond
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy and some things dont
 - im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl and can take awhile to warm up
