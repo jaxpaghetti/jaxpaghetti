@@ -17,7 +17,6 @@
 - [guestbook](https://furretkechi.123guestbook.com) is dead but the hate msg on it is funny so im keeping it on my github
 - dont roleplay in a serious manner with me pls i will likely ignore u i dont like rping
 - im blocking/ignoring ppl who try to debate and get a rise out of me over the tadc finale i dont care about ur copy and pasted tiktok comment section argument<br></br>
-i genuinely dont mean to be messy but its a headache to deal with because they are integrated into a lot of people in the area i sit in. please dont interact with me whatsoever if you are friends or in contact with github user jokerofwildcards
 <sub><sup>sorry if my wording in some of this makes me sound scary i promise im not. theyre just my boundaries that i want taken seriously </3</sup></sub>
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
