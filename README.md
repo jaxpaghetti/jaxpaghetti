@@ -2,7 +2,6 @@
 <br></br>
 ## PLEASE do not ask me for supporter perks!!! i will never say yes!!! pay for it yourself this is my money!!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont have access to it anymore :(</br>
- i genuinely dont mean to be messy but its a headache to deal with since a lot of ppl seem to be involved with this person, but please do not interact with me for any reason if you are friends/involved with github user jokerofwildcards. please dont ask i am not making it a bigger deal i am simply just uncomfortable with any possibility of contact to them. i am genuinely only putting this because there have been a couple close calls and not out of spite.<br></br>
 - im at spawn 99.5% of the time
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3 (i may respond slowly)
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
