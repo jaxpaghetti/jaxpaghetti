@@ -2,7 +2,8 @@
 <br></br>
 ## PLEASE do not ask me for supporter perks!!! i will never say yes!!! pay for it yourself this is my money!!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont have access to it anymore :(</br>
-- im at spawn 99.5% of the time
+- im at spawn 99.5% of the time (18+)
+- if i am on safe server im not accepting friend reqs unless ik ur 18+
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3 (i may respond slowly)
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
 - tadc fans iwc u guys are genuinely on the thinnest ice. dni if u hate any tadc character especially if hating them is your entire personality
