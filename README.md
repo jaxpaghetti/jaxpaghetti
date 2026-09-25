@@ -2,7 +2,7 @@
 <br></br>
 ## PLEASE do not ask me for supporter perks!!! i will never say yes!!! pay for it yourself this is my money!!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 
-### its been brought to my attention that my jax ponies have been posted to telegram for "free use". ik theres nothing i can do about it, but i just ask u to not use them if u happen to stumble across them because whoever posted them were not given permission to use or give out my ponies. i spend a lot of time on them so please respect it thank you :( <3
+### its been brought to my attention that my jax ponies have been posted to telegram for "free use". ik theres nothing i can do about it, but i just ask u to not use them if u happen to stumble across them because whoever posted them were not given permission to use or give out my ponies. i spend a lot of time on them so please respect it thank you :( <3 
 
 ### about me  ☆</br>
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3 (i may respond slowly)
