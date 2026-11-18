@@ -10,11 +10,10 @@
 - im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl and can take awhile to warm up some times
 
 ### dni/byi  ☆
-- tadc fans iwc u guys are genuinely on the thinnest ice. dni if u hate any tadc character especially if hating them is your entire personality
-- this goes under basic dni, but incase it wasnt obvious dni if u deny transfem jax 
+- tadc fans iwc u guys are genuinely on the thinnest ice. as long as u dont make hating characters your entire personality and respect she/her jax, im okay with interacting with u 
+- dont start stuff with me about vas/gooseworx/finale/jax anything along those lines. im not wasting my time defending myself against random ponytown bums ill never interact with. im not going to argue with people who will only hear what they want to hear and that does NOT mean i am defending any of them or agreeing with them. just block me if u dont like tadc instead of picking fights purely for the sake of proving your self-righteousness to make yourself feel better. find an offline hobby.
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy and some things dont
-- persona fandom pls dont interact with me. theres just certain people i dont want to accidentally get reinvolved with. thanks for understanding
-- im blocking/ignoring ppl who try to debate and get a rise out of me over the tadc finale i dont care about ur copy and pasted tiktok comment section argument i get second hand embarrassment
+- persona fandom iwec cuz im scared of persona fans im not already familiar with on ponytown specifically. theres a crowd of unsavory people i absolutely do not want to get reinvolved with and that includes people who associate with them.
 - dont roleplay in a serious manner with me pls i will likely ignore or hide u if u keep pushing it i dont like rping
 - if i am on safe server im not accepting friend reqs unless ik ur 18+ (unless i alr know u)
 
